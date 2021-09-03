@@ -1,2 +1,2 @@
 # wpu-resolusi-2
-resoles di 5 tahun kedepan
+resolusi di 5 tahun kedepan
